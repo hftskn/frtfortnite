@@ -1,4 +1,4 @@
-# **{{#GERMAN# So Bekommst Du Kostenlose Skins in Fortnite 2025 Android und iOS**
+Get Skins in Fortnite 2025 Android und iOS**
 
 
 ### [CLICK HERE TO GET FREE](https://lookerstudio.google.com/s/jzobrV9RiaM)
