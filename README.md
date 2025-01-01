@@ -1,4 +1,4 @@
-# **[15 Seconds]Free Fortnite Skins Generator 2025: Claim Skins for Fortnite IOS Android Mobile**
+# **{{#METHOD# Free Fortnite Skins Generator 2025: Claim Skins for Fortnite IOS Android Mobile **
 
 
 ### [CLICK HERE TO GET FREE](https://lookerstudio.google.com/s/jzobrV9RiaM)
